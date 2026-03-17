@@ -1,1 +1,3 @@
-# Egzamin-inf-0.3
+Łukasz Czubin
+3CT
+17.03.2026r
